@@ -15,12 +15,17 @@ Hack any operating system send PDF exploit
 
   https://zennashop.com/product/pdf-rat-hvnc/
   
-[![DigitalOcean Referral Badge](https://web-platforms.sfo2.cdn.digitaloceanspaces.com/WWW/Badge%201.svg)](https://www.digitalocean.com/?refcode=a6ba226017e2&utm_campaign=Referral_Invite&utm_medium=Referral_Program&utm_source=badge)
 
+#   [BUY HERE FROM WEBSITE]
+
+[BUY HERE FROM WEBSITE]: https://ratshop.org/product/pdf-rat-hvnc/
   
 
-# demo video
-https://youtu.be/m9fZ7YT_6Rc
+
+#   [Demo Video]
+
+[Demo Video]: https://telegram.me/+ZkZ0naTurGliM2Qx
+
 
 
 ## Email
